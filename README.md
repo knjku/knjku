@@ -10,5 +10,5 @@ i love writing and drawing so i may be seen afk alot
 
 special mentions: Zephyra, Eden, Hina, Nana, Kuro, Occy/Lorelei, Millie, and Ollie, you all are the best. especially Zeph and Eden<3.
 
-**something funny that ive learnt, just how quickly fates could turn. 
+*something funny that ive learnt, just how quickly fates could turn. 
 how one simple mistake can take you out.*
