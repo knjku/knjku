@@ -3,7 +3,7 @@
 hello, I'm akari / hiro or suguru. he/him . demisexual 
 int w me freely, idm! c+h is accepted, dnc my skins or take inspo! 
 do NOT cover me unless your a friend. 
-im a big jjk fan (int if you are one) and sukugo + satosugu shipper, both platonic and romantic.
+im a big jjk fan (int if you are one) and sukugo + satosugu shipper romantically :3
 
 i dont ship any jjk ship that is considered illegal to me personally, such as Sukuji (Sukuna Yuji), Megumi x Toji. (please dni if you do ship them!) ect. 
 i am also a multishipper!
